@@ -1,1 +1,1 @@
-https://noconcarlmichaeltaladro.github.io/myportfolio/
+https://noconcarlmichaeltaladro.github.io/myportfolio/MyInfo.html
